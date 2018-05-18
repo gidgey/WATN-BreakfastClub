@@ -9,3 +9,13 @@ Let's talk about each character. What have they been doing since 1985?
 Each character is an issue.
 
 :)
+
+
+Judd Nelson as John Bender
+Molly Ringwald as Claire Standish
+Emilio Estevez as Andy Clark
+Anthony Michael Hall as Brian Johnson
+Ally Sheedy as Allison Reynolds
+Paul Gleason as Assistant Principal Vernon
+John Kapelos as Carl Reed
+Ron Dean as Mr. Clark
